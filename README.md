@@ -1,0 +1,11 @@
+- XYLCS Studio
+- 一个动画游戏计算机创作方面的自由创作工作室🎉
+- 工作室注重一个创作理念:创作，永不停歇！这也是我们工作室的一句经典老话
+- 我们很喜欢创作，从2018年开始一直在创作（创作虽然永不停歇，但是也有可能创作烂作用不停歇，这个是有点搞笑的hahhahh）
+- 我们希望创作是一种自由性质的有创新性质的创作，我们也一直在执行这一种类型的创作
+- 我们期盼打造一个更好的创作社区，希望你能加入我们的创作社区！
+- Discord：https://discord.gg/caab2VGue2
+- X：@xylcsstudio
+- Bilibili：xylcs工作室官方账号
+- Email：xylcsstudio@outlook.com
+- Youtube Channel：XYLCS-Studio
